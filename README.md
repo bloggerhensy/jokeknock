@@ -1,1 +1,1 @@
-# jokeknock
+Welcome to [JokeKnock](https://jokeknock.com/) – your one-stop destination for hilarious laughs and endless amusement! We are a dedicated team of comedy enthusiasts, passionate about spreading joy and lightening up your day through our vast collection of funny jokes. Laughter is truly the best medicine, and we firmly believe in its power to bring people together and uplift spirits.
